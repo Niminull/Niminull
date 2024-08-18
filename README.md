@@ -13,6 +13,7 @@
 - 📫 How to reach me:
     - email: 200fk.knox7@gmail.com
     - [Telegram](https://t.me/niminull0101)
+    - [Telegram Channel](https://t.me/half_moon007)
     - [Instagram](https://www.instagram.com/niminull0101)
     - [X](https://x.com/niminull0101)
 <!-- - 😄 Pronouns: ... -->
