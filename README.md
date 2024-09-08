@@ -10,7 +10,7 @@
 <!-- - 👯 I’m looking to collaborate on ... -->
 <!-- - 🤔 I’m looking for help with ... -->
 <!-- - 💬 Ask me about ... -->
-- 📫 How to reach me:
+- 📫 Links to me:
     - email: 200fk.knox7@gmail.com
     - [Telegram](https://t.me/niminull0101)
     - [Telegram Channel](https://t.me/half_moon007)
